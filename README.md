@@ -1,6 +1,6 @@
  Olá, meu nome é **Rafael** 😎
 
-  Estudo **CURSOS** de **Programação**, **Marketing**, **Inglês**, **Comunicação**!!
+  Estudo **CURSOS** de **Programação**, **Marketing**, **Inglês** e **Comunicação**!!
   
  🙋🏽‍♂️ **tenho 16 anos**
   
