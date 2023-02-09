@@ -10,4 +10,4 @@
 
  ♘ **"Faço o melhor que eu tenho enquanto eu não tenho condições melhores para fazer melhor ainda!!"** 💼
   
- Mas Quem Veio Primeiro?? Á Galinha ou o Ovo??  
+ Mas Quem Veio Primeiro?? **Á Galinha** ou **O Ovo**?? 🐔🥚
